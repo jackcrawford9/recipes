@@ -2,9 +2,31 @@
 
 ## Ingredients
 
-For 4 people
+For 5 people
 
 * 3 whole eggs
+* 500 ml of Milk 
+* 1/2 cup sugar for caramel
+* 1/2 cup sugar for custard 
+* Salted butter for the ramekins 
+
+Preheat oven to 300F or 150c 
+
+Individually butter each ramekin
+
+Begin the caramel by melting the sucre in a pot on a low temperature, slowly stiring with a wooden spatula. Once the caramel has reached a majestic blonde, quickly pour the caramel into the individual ramenkins.
+
+Beat the eggs in a small mixing bowl. Heat the milk and sugar, whilst progressively adding the beaten eggs, while stiring vigorously. Do not boil the milk!! :)
+
+Pour the mix over the caramel in the individual ramekins.
+
+Place the ramekins in a baking dish and fill with nearly boiling water to half the height of the ramekin. 
+
+Bake for approximately 50 minutes, looking for the custard to set, dependent on water temperature. 
+
+After baking, cool the custard filled ramekins in the fridge for an hour, prior to serving.
+
+Serve chilled. 
 
 
 Crème renversée \(from Penny via Thanassi\)
